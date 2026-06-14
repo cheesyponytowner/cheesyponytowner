@@ -1,1 +1,1 @@
-<img src="https://tenor.com/view/amanda-young-john-kramer-saw-gif-2805210185078034024">
+<img src="https://media1.tenor.com/m/Ju4bzPniTmgAAAAd/amanda-young-john-kramer.gif">
