@@ -1,1 +1,1 @@
-<div class="tenor-gif-embed" data-postid="2805210185078034024" data-share-method="host" data-aspect-ratio="1.19712" data-width="100%"><a href="https://tenor.com/view/amanda-young-john-kramer-saw-gif-2805210185078034024">Amanda Young John Kramer GIF</a>from <a href="https://tenor.com/search/amanda+young-gifs">Amanda Young GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+<img src="https://tenor.com/view/amanda-young-john-kramer-saw-gif-2805210185078034024">
