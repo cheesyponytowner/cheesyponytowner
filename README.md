@@ -2,6 +2,7 @@ feeling  <a href="https://www.imood.com/users/cheesycheese"><img src="https://mo
 
 <a href="https://github.com/d3x13r679">the coolest guy ever <3</a>
 
-might try to make this look cooler with my magical html powers
+<i>might try to make this look cooler with my magical html powers</i>
 
+unfortunate dr. james harvey and john kramer yumeshipper
 <img src="https://media1.tenor.com/m/Ju4bzPniTmgAAAAd/amanda-young-john-kramer.gif">
