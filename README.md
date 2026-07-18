@@ -8,7 +8,7 @@
 <div align="center">
 <i><a href="https://cheesiestcheesings.straw.page">🩸 strawpage</a></a><br>
 <i><a href="https://en.pronouns.page/@cheese_01469">pronouns.page 🌹</a><br>
-<i><a href="https://github.com/d3x13r679">🦊 mein liebe <3</a><br>
+<i><a href="https://github.com/d3x13r679">🦊 my e-kitten</a><br>
 </div>
 
 <br><img src="https://media.tenor.com/a5L2WrgwuWgAAAAi/divider-divider-discord.gif"><br>
