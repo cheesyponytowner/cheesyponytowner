@@ -10,7 +10,8 @@
 <i><a href="https://en.pronouns.page/@cheese_01469">pronouns.page 🌹</a><br>
 <i><a href="https://github.com/d3x13r679">🦊 mein liebe <3</a><br>
 </div>
-<br>
+
+<br><img src="https://media.tenor.com/a5L2WrgwuWgAAAAi/divider-divider-discord.gif"><br>
 
 <img src="https://media1.tenor.com/m/WgWnsAnxF5YAAAAd/an-american-werewolf-in-london-eyes.gif"><br>
 <h1 align="center">$${\color{#ff0000}☽☽☽☽☽☽☽☽☽}$$</h1>
