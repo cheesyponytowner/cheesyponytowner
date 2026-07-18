@@ -1,4 +1,4 @@
-# $${\color{#ff0000}☾☾☾☾☾☾☾☾☾}$$
+# $${\color{#ff0000}☾☾☾☾☾☾☾☾☾☾}$$
 <div align="center">
 <i><a href="https://cheesiestcheesings.straw.page">🩸 strawpage</a></a><br>
 <i><a href="https://en.pronouns.page/@cheese_01469">pronouns.page 🌹</a><br>
@@ -7,4 +7,4 @@
 <br>
 
 <img src="https://media1.tenor.com/m/WgWnsAnxF5YAAAAd/an-american-werewolf-in-london-eyes.gif"><br>
-# $${\color{#ff0000}☽☽☽☽☽☽☽☽☽}$$
+# $${\color{#ff0000}☽☽☽☽☽☽☽☽☽☽}$$
